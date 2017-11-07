@@ -1,2 +1,5 @@
 # Hello-World
 My First GItHub Repository
+Lorem Khaled Ipsum is a major key to success. The first of the month is coming, we have to get money, we have no choice. It cost money to eat and they don’t want you to eat. The key to more success is to have a lot of pillows. To succeed you must believe. When you believe, you will succeed. Let me be clear, you have to make it through the jungle to make it to paradise, that’s the key, Lion! Give thanks to the most high. To succeed you must believe. When you believe, you will succeed. To succeed you must believe. When you believe, you will succeed.
+
+Learning is cool, but knowing is better, and I know the key to success. You see the hedges, how I got it shaped up? It’s important to shape up your hedges, it’s like getting a haircut, stay fresh. Mogul talk. Hammock talk come soon. It’s on you how you want to live your life. Everyone has a choice. I pick my choice, squeaky clean. To be successful you’ve got to work hard, to make history, simple, you’ve got to make it. Surround yourself with angels.
